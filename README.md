@@ -9,7 +9,7 @@
 
 - 👯 I’m looking to collaborate on **BIDB**
 
-- 💬 Ask me about **Android , Website , Taks**
+- 💬 Ask me about ** Web Development ,  Mobile Development ,  Desktop Development**
 
 - 📫 How to reach me **adiemokonkz16@gmail.com**
 
